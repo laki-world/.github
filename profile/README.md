@@ -2,7 +2,7 @@
 
 <p align="center">
   <a href="https://world-gateway4.com/ru/signup?faff=117&sub=glbrngit">
-    <img src="./assets/laki-world-button.svg" width="520" alt="Перейти на Laki World">
+    <img src="./assets/laki-world-button.svg" width="100" alt="Перейти на Laki World">
   </a>
 </p>
 
