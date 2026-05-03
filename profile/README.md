@@ -1,9 +1,9 @@
 # ✅ **Официальное зеркало Laki World на сегодня бесплатно**
 
 <p align="center">
-  <a href="https://world-gateway4.com/ru/signup?faff=117&sub=glbrngit">
-    <img src="https://via.placeholder.com/600x120/ff3b3b/ffffff?text=ПЕРЕЙТИ+НА+LAKI+WORLD" width="500"/>
-  </a>
+
+## 🔴 [ПЕРЕЙТИ НА LAKI WORLD](https://world-gateway4.com/ru/signup?faff=117&sub=glbrngit)
+
 </p>
 
 
