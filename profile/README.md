@@ -1,21 +1,10 @@
 # ✅ **Официальное зеркало Laki World на сегодня бесплатно**
 
-<div style="max-width:480px; margin:30px auto; padding:24px; background:#f5f7fa; text-align:center; border-radius:8px; font-family:sans-serif;">
-
-  <h2 style="margin-bottom:12px; font-size:22px; color:#222;">
-    Присоединяйтесь к Lucky World
-  </h2>
-
-  <p style="margin-bottom:20px; color:#555; font-size:14px;">
-    Быстрая регистрация и доступ к платформе за 1 минуту
-  </p>
-
-  <a href="https://world-gateway4.com/ru/signup?faff=117&sub=glbrngit"
-     style="display:inline-block; padding:14px 22px; background:#1677ff; color:#fff; text-decoration:none; font-weight:700; border-radius:6px; letter-spacing:0.5px;">
-    Перейти на официальный сайт
+<p align="center">
+  <a href="https://world-gateway4.com/ru/signup?faff=117&sub=glbrngit">
+    <img src="https://img.shields.io/badge/ПЕРЕЙТИ_НА_LAKI_WORLD-1677ff?style=for-the-badge&logo=google-chrome&logoColor=white" />
   </a>
-
-</div>
+</p>
 
 
 
