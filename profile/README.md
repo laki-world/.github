@@ -4,21 +4,21 @@
 
 # Laki World зеркало, рабочее на сегодня: вход на сайт Laki World в личный кабинет
 <p>
-  <a href="https://laki-gateway4.com/ru/signup?faff=117&sub=glbrngit"
+  <a href="https://world-gateway4.com/ru/signup?faff=117&sub=glbrngit"
      style="display:inline-block; padding:10px 16px; background:#1677ff; color:#fff; text-decoration:none; font-weight:700; border-radius:0; letter-spacing:1px;">
     Официальный Сайт Лаки Ворлд
   </a>
 </p>
 
 <p>
-  <a href="https://laki-gateway4.com/ru/signup?faff=117&sub=glbrngit"
+  <a href="https://world-gateway4.com/ru/signup?faff=117&sub=glbrngit"
      style="display:inline-block; padding:10px 16px; background:#1677ff; color:#fff; text-decoration:none; font-weight:700; border-radius:0; letter-spacing:1px;">
     Официальный Сайт Лаки Ворлд
   </a>
 </p>
 
 <p>
-  <a href="https://laki-gateway4.com/ru/signup?faff=117&sub=glbrngit"
+  <a href="https://world-gateway4.com/ru/signup?faff=117&sub=glbrngit"
      style="display:inline-block; padding:10px 16px; background:#1677ff; color:#fff; text-decoration:none; font-weight:700; border-radius:0; letter-spacing:1px;">
     Официальный Сайт Лаки Ворлд
   </a>
@@ -29,8 +29,8 @@
 
 | Статус | Описание |
 |------|---------|
-| ✅ | [ГЛАВНОЕ ЗЕРКАЛО Laki World 2026](https://laki-gateway4.com/ru/signup?faff=117&sub=glbrngit) |
-| ✅ | [Регистрация в Лаки Ворлд](https://laki-gateway4.com/ru/signup?faff=117&sub=glbrngit) |
+| ✅ | [ГЛАВНОЕ ЗЕРКАЛО Laki World 2026](https://world-gateway4.com/ru/signup?faff=117&sub=glbrngit) |
+| ✅ | [Регистрация в Лаки Ворлд](https://world-gateway4.com/ru/signup?faff=117&sub=glbrngit) |
 
 **Laki World (Лаки Ворлд)** — это современное онлайн-казино, которое завоевало доверие тысяч игроков благодаря широкому выбору игровых автоматов, щедрым бонусам и удобному интерфейсу.
 
@@ -64,7 +64,7 @@
 
 Если основной сайт недоступен, можно воспользоваться **зеркалом Laki World** — альтернативной ссылкой с идентичным функционалом. Повторная регистрация не требуется.
 
-✅ [Перейти на официальный сайт](https://laki-gateway4.com/ru/signup?faff=117&sub=glbrngit)
+✅ [Перейти на официальный сайт](https://world-gateway4.com/ru/signup?faff=117&sub=glbrngit)
 
 ---
 
@@ -147,7 +147,7 @@
 Пополнение счёта происходит без комиссий, что позволяет полностью контролировать игровой бюджет.
 
 ---
-✅ [Перейти на официальный сайт](https://laki-gateway4.com/ru/signup?faff=117&sub=glbrngit)
+✅ [Перейти на официальный сайт](https://world-gateway4.com/ru/signup?faff=117&sub=glbrngit)
 
 ## VIP-клуб и эксклюзивные программы
 
@@ -175,7 +175,7 @@ VIP-клуб **Laki World** предназначен для активных и�
 
 Персональные данные пользователей не передаются третьим лицам.
 
-✅ [Перейти на официальный сайт](https://laki-gateway4.com/ru/signup?faff=117&sub=glbrngit)
+✅ [Перейти на официальный сайт](https://world-gateway4.com/ru/signup?faff=117&sub=glbrngit)
 ---
 
 ## Часто задаваемые вопросы (FAQ)
