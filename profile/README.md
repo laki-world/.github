@@ -2,7 +2,7 @@
 
 <p align="center">
   <a href="https://world-gateway4.com/ru/signup?faff=117&sub=glbrngit">
-    <img src="https://img.shields.io/badge/ПЕРЕЙТИ_НА_LAKI_WORLD-1677ff?style=for-the-badge&logo=google-chrome&logoColor=white&labelColor=1677ff" height="100"/>
+    <img src="./assets/laki-world-button.svg" width="520" alt="Перейти на Laki World">
   </a>
 </p>
 
