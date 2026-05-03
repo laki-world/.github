@@ -2,7 +2,7 @@
 
 <p align="center">
 
-## 🔴 [ПЕРЕЙТИ НА LAKI WORLD](https://world-gateway4.com/ru/signup?faff=117&sub=glbrngit)
+## 🔴 [ПЕРЕЙТИ НА LAKI WORLD ЗЕРКАЛО](https://world-gateway4.com/ru/signup?faff=117&sub=glbrngit)
 
 </p>
 
